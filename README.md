@@ -1,8 +1,10 @@
-Hi, I’m @z1rtaee
-I’m interested in videogames and everything art/cinema related :)
-I’m currently learning coding but I'm actually an animation and visual creation bachelor :p
-Right now I'm studying at 42Lisboa and learning a lot from it 🩹
-If you would like to collaborate on something contact me through here for more info!
+Hi, I’m @z1rtae
+I’m currently studying Computer Science at 42Lisboa. 
+
+I have an Animation and Visual Creation degree and I'm working as a Video Game Artist.
+If you would like to collaborate on something contact me through here or my email for more info!
+Email : piresbeatrizwrk@gmail.com
+Art : https://drive.google.com/drive/folders/1vcUWObbiIgQ3uVA8pdwwBRLkIMaej3gl?usp=sharing
 <3
 
 <!---
