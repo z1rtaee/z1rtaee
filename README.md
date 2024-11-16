@@ -10,7 +10,6 @@ If you would like to collaborate on something contact me through here or my emai
 
 Email : piresbeatrizwrk@gmail.com
 
-Art : https://drive.google.com/drive/folders/1vcUWObbiIgQ3uVA8pdwwBRLkIMaej3gl?usp=sharing
 <!---
 z1rtaee/z1rtaee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
