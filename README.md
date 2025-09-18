@@ -1,7 +1,7 @@
 Hi, I’m @z1rtae
-I’m currently studying Computer Science at 42Lisboa. 
+I’m currently studying Computer Science at 42Lisboa while teaching coding, game development and robotics students from 7-18 years!
 
-I have an Animation and Visual Creation degree and I'm working as a Video Game Artist.
+I have an Animation and Visual Creation degree and I'm working as a freelancer Video Game Artist.
 
 
 
