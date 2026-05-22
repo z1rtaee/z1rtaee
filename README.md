@@ -1,5 +1,5 @@
 Hi, I’m @z1rtae
-I’m currently studying Computer Science at 42Lisboa while teaching coding, game development and robotics students from 7-18 years!
+I’m currently studying Computer Science at 42Lisboa while wotking as a SW Engineer at NOKIA.
 
 I have an Animation and Visual Creation degree and I'm working as a freelancer Video Game Artist.
 
